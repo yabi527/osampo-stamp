@@ -1,0 +1,1 @@
+# osampo-stamp
